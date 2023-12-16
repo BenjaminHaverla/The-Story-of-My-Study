@@ -12,5 +12,7 @@ I must point out that my high school specialized in information and digital tech
 
 # Education
 
-## High School
-Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies | 2017 – 2021
+## High School (2017 – 2021)
+Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies 
+## University (2021 – Present)
+University of Creative Communication Na Pankráci 420/54 140 00 Prague 4 – Nusle | Animation and VFX
