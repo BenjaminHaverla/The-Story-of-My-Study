@@ -18,6 +18,8 @@ As mentioned earlier, I sought to expand my knowledge of filmmaking during my fr
 
 ## VŠKK (University of Creative Communication)
 
+![VSKK](Images/vskk.PNG)
+
 # Education
 
 ## High School (2017 – 2021)
