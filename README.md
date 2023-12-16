@@ -10,6 +10,10 @@ Later, I was honored by the school director who recognized my talent. She was su
 
 I must point out that my high school specialized in information and digital technologies, far removed from filmmaking and cinematography. Nevertheless, I believe this background has been beneficial, providing me with a solid understanding of technology that can prove valuable in the film industry and my future work as a film director.
 
+## SSOSTA TV
+
+As mentioned earlier, I sought to expand my knowledge of filmmaking during my free time. Consequently, I joined SSOSTA TV at our high school. I gained valuable experience in teamwork, creative ideas and technology skills. I gained valuable experience in teamwork, generated creative ideas, and developed essential technology skills.
+
 # Education
 
 ## High School (2017 – 2021)
