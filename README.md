@@ -22,11 +22,11 @@ As mentioned earlier, I sought to expand my knowledge of filmmaking during my fr
 
 At [VŠKK University](https://www.vskk.cz/cz), I am acquiring new experiences in the animation and VFX field, skills that I believe will significantly contribute to my future role as a film director.
 
-# Education
+# Education:
 
-## High School (2017 – 2021)
+## [High School](https://ssosta.edupage.org/?lang=sk) (2017 – 2021)
 Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies 
-## University (2021 – Present)
+## [University](https://www.vskk.cz/cz) (2021 – Present)
 University of Creative Communication Na Pankráci 420/54 140 00 Prague 4 – Nusle | Animation and VFX
 
 # BACK TO THE...
