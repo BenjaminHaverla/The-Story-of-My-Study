@@ -9,3 +9,8 @@ Later, I was honored by the school director who recognized my talent. She was su
 ![Benjamín Haverla awarded by school director](Images/ssosta_ceremony_2.png)
 
 I must point out that my high school specialized in information and digital technologies, far removed from filmmaking and cinematography. Nevertheless, I believe this background has been beneficial, providing me with a solid understanding of technology that can prove valuable in the film industry and my future work as a film director.
+
+# Education
+
+- High School
+  -Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies | 2017 – 2021
