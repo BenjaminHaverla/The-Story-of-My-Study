@@ -12,5 +12,5 @@ I must point out that my high school specialized in information and digital tech
 
 # Education
 
-- High School
-  -Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies | 2017 – 2021
+## High School
+Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies | 2017 – 2021
