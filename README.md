@@ -20,6 +20,8 @@ As mentioned earlier, I sought to expand my knowledge of filmmaking during my fr
 
 ![VSKK](Images/vskk.png)
 
+At VŠKK University, I am acquiring new experiences in the animation and VFX field, skills that I believe will significantly contribute to my future role as a film director.
+
 # Education
 
 ## High School (2017 – 2021)
