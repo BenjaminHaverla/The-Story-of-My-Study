@@ -29,6 +29,8 @@ Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and 
 ## [University](https://www.vskk.cz/cz) (2021 – Present)
 University of Creative Communication Na Pankráci 420/54 140 00 Prague 4 – Nusle | Animation and VFX
 
+-------------------------------------------------------------
+
 # BACK TO THE...
 ## [Main Page (English for designers)](https://github.com/BenjaminHaverla/English-for-designers.git)
 ## [ABOUT ME](https://github.com/BenjaminHaverla/Main-about-me.git)
