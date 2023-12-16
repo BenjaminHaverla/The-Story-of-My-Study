@@ -6,4 +6,6 @@ Studying IT in high school was challenging due to its strict and demanding natur
 
 Later, I was honored by the school director who recognized my talent. She was supportive, providing me with self-confidence and courage. Upon completing my high school thesis on the art of filmmaking, I was also awarded by the high school.
 
+![Benjamín Haverla awarded by school director](Images/ssosta_ceremony_2.png)
+
 I must point out that my high school specialized in information and digital technologies, far removed from filmmaking and cinematography. Nevertheless, I believe this background has been beneficial, providing me with a solid understanding of technology that can prove valuable in the film industry and my future work as a film director.
