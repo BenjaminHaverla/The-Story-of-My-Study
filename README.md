@@ -14,7 +14,7 @@ I must point out that my high school specialized in information and digital tech
 
 ![Benjamín Haverla awarded by school director](Images/ssostatv_green.jpg)
 
-As mentioned earlier, I sought to expand my knowledge of filmmaking during my free time. Consequently, I joined SSOSTA TV at our high school. I gained valuable experience in teamwork, creative ideas and technology skills. I gained valuable experience in teamwork, generated creative ideas, and developed essential technology skills.
+As mentioned earlier, I sought to expand my knowledge of filmmaking during my free time. Consequently, I joined SSOSTA TV at our high school. I gained valuable experience in teamwork, generated creative ideas, and developed essential technology skills.
 
 # Education
 
