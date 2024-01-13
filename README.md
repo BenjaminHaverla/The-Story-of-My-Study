@@ -22,6 +22,8 @@ As mentioned earlier, I sought to expand my knowledge of filmmaking during my fr
 
 At [VŠKK University](https://www.vskk.cz/cz), I am acquiring new experiences in the animation and VFX field, skills that I believe will significantly contribute to my future role as a film director.
 
+https://github.com/BenjaminHaverla/The-Story-of-My-Study/assets/149423594/60a94062-4490-487d-9342-b3679a55c9c1
+
 # Education:
 
 ## [High School](https://ssosta.edupage.org/?lang=sk) (2017 – 2021)
