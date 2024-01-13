@@ -27,9 +27,9 @@ https://github.com/BenjaminHaverla/The-Story-of-My-Study/assets/149423594/60a940
 # Education:
 
 ## [High School](https://ssosta.edupage.org/?lang=sk) (2017 – 2021)
-Private Secondary Technical School (SSOSTA), Poprad, Slovakia | Information and digital technologies 
+Private Secondary Technical School (SSOSTA), Poprad, Slovakia | **`Information and digital technologies`**
 ## [University](https://www.vskk.cz/cz) (2021 – Present)
-University of Creative Communication Na Pankráci 420/54 140 00 Prague 4 – Nusle | Animation and VFX
+University of Creative Communication Na Pankráci 420/54 140 00 Prague 4 – Nusle | **`Animation and VFX`**
 
 
 
